@@ -1,1 +1,1 @@
-my first readme
+I will make money in life
